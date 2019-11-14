@@ -1,5 +1,3 @@
-# **Asmaa Mahmoud Mahmoud**
-
 # Personal information :
 * Year Of Birth : 1997 
 * E-Mail : asmaamahmoud083@gmail.com 
